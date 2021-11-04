@@ -1,1 +1,1 @@
-Welcome to the Nanolocity profile :-)
+Welcome to the Nanolocity, check out FPremium while you're here
